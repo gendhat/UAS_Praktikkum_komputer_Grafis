@@ -1,0 +1,1 @@
+# UAS_Praktikkum_komputer_Grafis
